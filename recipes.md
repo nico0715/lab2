@@ -58,6 +58,7 @@ Ingredients:
 - 1 egg
 - 2 cloves garlic, minced
 - Salt and pepper to taste
+- 5 leaves of basil
 - 1 jar (24 oz) spaghetti sauce
 
 Instructions:
@@ -80,6 +81,7 @@ Ingredients:
 - Lettuce
 - Tomato
 - Mayonnaise
+- 1 sliced avocado
 
 Instructions:
 1. Preheat grill to medium-high heat.
@@ -101,7 +103,7 @@ Ingredients:
 - 3/4 cup brown sugar
 - 2 eggs
 - 2 tsp vanilla extract
-- 2 cups semisweet chocolate chips
+- 3 cups semisweet chocolate chips
 
 Instructions:
 1. Preheat oven to 375°F (190°C).
